@@ -4,7 +4,7 @@
 
 -💻Iniciando nos trabalhos de Front- End
 
--📩Contate-me pelo email: bcaethanowork21@gmail.com
+-📩Contate-me pelo email: bcaethano21@gmail.com
 
 -🎮Nas minhas horas vagas gosto de jogar vários games :)
 
